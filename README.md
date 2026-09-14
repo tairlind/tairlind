@@ -1,3 +1,5 @@
-hii
+𝓱𝓲𝓲!!
 
-fgdf'p'l
+![image alt](https://github.com/tairlind/tairlind/blob/main/aubrey%20my%20goat.jpg)
+
+[![Profile Views](https://komarev.com/ghpvc/?username=littlepatient)](https://github.com/antonkomarev/github-profile-views-counter)⠀⠀⠀⠀⠀⠀⠀
